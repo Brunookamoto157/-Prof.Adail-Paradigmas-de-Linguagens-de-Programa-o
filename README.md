@@ -1,0 +1,1 @@
+# -Prof.Adail-Paradigmas-de-Linguagens-de-Programa-o
